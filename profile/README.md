@@ -24,8 +24,8 @@ After visiting these repositories, familiarize yourself with our build system an
 
 Feel free to visit our Telegram group.
 
-- [Telegram Announcements Channel](https://t.me/nadinsylaa)
-- [Telegram Discussion Group](https://t.me/NadinSupport)
+- [Telegram Announcements Channel](https://t.me/nadinsXD)
+- [Telegram Discussion Group](https://t.me/VocaDroid)
 
 Thank you for your contribution to NadinsXD
 
